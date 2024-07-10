@@ -17,7 +17,7 @@ Today, the Métis continue to strive for recognition and the protection of their
 #
 > Alex: "*I'm a registered Canadian Métis who doesn't legally utilize aboriginal status.*"
 
-> "I'm not Métis when I'm legally asked if I'm aborignal."
+> "*I'm not Métis when I'm legally asked if I'm aborignal.*"
 #
 ### Related Links
 
