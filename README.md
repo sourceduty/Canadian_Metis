@@ -24,6 +24,10 @@ Today, the Métis continue to strive for recognition and the protection of their
 [Indian Termonology](https://github.com/sourceduty/Indian_Terminology)
 <br>
 [History Product](https://github.com/sourceduty/History_Product)
+<br>
+[Canada-USA](https://github.com/sourceduty/Canada-USA)
+<br>
+[The Corporation of Canada](https://github.com/sourceduty/The_Corporation_of_Canada)
 
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
