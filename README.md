@@ -21,7 +21,7 @@ Today, the Métis continue to strive for recognition and the protection of their
 #
 ### Related Links
 
-[Indian Termonology](https://github.com/sourceduty/Indian_Terminology)
+[Indian Terminology](https://github.com/sourceduty/Indian_Terminology)
 <br>
 [History Product](https://github.com/sourceduty/History_Product)
 <br>
