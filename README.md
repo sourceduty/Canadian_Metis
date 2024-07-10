@@ -20,7 +20,7 @@ Today, the Métis continue to strive for recognition and the protection of their
 > "*I'm not Métis when I'm legally asked if I'm aborignal.*"
 #
 
-![Inflatable Teepee](https://github.com/sourceduty/Canadian_Metis/assets/123030236/cfd6d983-9c33-4191-80b3-5d7be46222ac)
+![Inflatable Tepee](https://github.com/sourceduty/Canadian_Metis/assets/123030236/cfd6d983-9c33-4191-80b3-5d7be46222ac)
 
 #
 ### Related Links
