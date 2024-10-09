@@ -17,6 +17,8 @@ Today, the Métis continue to strive for recognition and the protection of their
 #
 ### Canadian Annex
 
+![Peoples](https://github.com/user-attachments/assets/f4514fd0-7ea6-4a1b-860e-ff8a89edab82)
+
 Annexing Quebec from Canada would be a complex and contentious process, involving significant political, legal, and social ramifications. Quebec has a distinct cultural and linguistic identity within Canada, primarily due to its French-speaking majority and unique heritage. Any attempt to annex Quebec would likely provoke strong reactions from both the Quebecois population and the rest of Canada, potentially leading to widespread political unrest. The legal process of annexation would be fraught with challenges, requiring amendments to Canada’s constitution and possibly the approval of a referendum. Additionally, international bodies and neighboring countries would closely scrutinize such a move, potentially influencing diplomatic relations.
 
 The economic implications of annexing Quebec would be profound. Quebec is a major contributor to Canada’s GDP, and its separation could disrupt trade, resource distribution, and economic stability in the region. Both Quebec and Canada would need to renegotiate agreements on issues such as natural resources, debt allocation, and market access. The cultural and social consequences would also be significant, as the annexation could impact the identity and cohesion of communities on both sides. Overall, annexing Quebec would not only reshape the political landscape but also alter the fabric of Canadian society, creating deep and lasting effects that would be felt for generations.
